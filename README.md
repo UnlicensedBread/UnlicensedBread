@@ -1,5 +1,5 @@
 # 💫 About Me:
-🤝 I’m looking for help with furthering my skills in UI/UX Design<br>🌱 I’m currently learning IT Applications in ITE<br>💬 Ask me about my drive, designs aspects<br>📫 How to reach me: jeremiahsashen@gmail.com<br>⚡ Fun fact: I love hiking
+🤝 I’m looking for help with furthering my skills in UI/UX Design<br>🌱 I’m currently learning IT Applications in ITE<br>💬 Ask me about my drive, designs aspects<br>📫 How to reach me: jeremiahsashen@gmail.com<br>⚡ Fun fact: I love naturistic things
 
 
 ## 🌐 Socials:
